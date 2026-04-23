@@ -1,1 +1,1 @@
-Ok Baran Let me know your provide idea lets built ptoject together think of good three or more project that you would like to do. 
+Ok Baran Let me know your project ideas, we can built together think, of three or more projects that you would like to do. 
